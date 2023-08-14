@@ -12,6 +12,6 @@
 
 Contact: +91 9372929803
 
-Email: owais@example.com
+Email: muhammad.owais.shaikh.0786@gmail.com
 
 LinkedIn: www.linkedin.com/in/owais-shk
